@@ -1,5 +1,5 @@
-Hi, I’m Tina! I'm a first-year Math of Computation major at UCLA. 
+Hi, I’m Tina! I'm a second-year Math of Computation major at UCLA. 
 
-Looking for summer/fall 2022 internships; either paid or unpaid! 
+Looking for fall 2022 / summer 2023 internships; either paid or unpaid! 
 
 📫 You can find me at tinatjma@gmail.com -- would love to chat! 
