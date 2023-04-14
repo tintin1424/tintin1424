@@ -1,4 +1,4 @@
-Hi, I’m Tina! I'm a second-year majoring in math and cs and minoring in stats at UCLA. 
+Hi, I’m Tina! I'm a junior majoring in math and cs and minoring in stats at UCLA. 
 
 Looking for summer / fall 2023 internships; either paid or unpaid! 
 
