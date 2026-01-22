@@ -1,5 +1,3 @@
-Hi, I’m Tina! I'm a junior majoring in math and cs and minoring in stats at UCLA. 
+Hi, I’m Tina! I graduated from UCLA in March 2025 with a B.S. in Mathematics and Computer Science. I'm currently working as a data engineer and looking for full-time software and data roles. 
 
-Looking for summer / fall 2024 internships; either paid or unpaid! 
-
-📫 You can find me at tinatjma@gmail.com -- would love to chat! 
+📫 Reach me at tinatjma@gmail.com -- would love to chat! 
